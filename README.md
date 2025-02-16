@@ -1,2 +1,2 @@
 ### Hi there, I'm Kirill 👋
-![Image](https://github.com/user-attachments/assets/12a1ff04-3dee-420f-b86d-c2c2e2482137)
+![Image](https://github.com/user-attachments/assets/4ef189b6-846f-4457-9566-adfd4da92a40)
